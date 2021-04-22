@@ -1,4 +1,4 @@
-# Regulamin-Polski-
+# Regulamin-Polska-Versja
 Regulamin moich profili GŁÓWNE
 
 --------------------------------------------------------------
